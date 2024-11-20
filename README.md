@@ -1,4 +1,4 @@
-- 👋 Hi, I'm @Celeste-heart
+- 👋 Hi, I'm @Celeste_heart
 - 👀 I am interested in increasing my knowledge and interacting with people from the same environment, who associate our interests for mutual support.
 - 🌱 I am currently studying software engineering.
 - 💞️ I am looking to learn from reality through you to practice and verify the needs of today's world.
